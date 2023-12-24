@@ -1,1 +1,1 @@
-Ссылка на основной ресурс- https://forums.alliedmods.net/showthread.php?p=2540326
+Link to main resource- https://forums.alliedmods.net/showthread.php?p=2540326
